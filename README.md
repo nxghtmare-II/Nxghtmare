@@ -10,7 +10,7 @@ Features:
 
 How To Purchase?
 
-• Add Me On Discord
-• ._nxghtmare_.
+• Join The Discord
+• (coming soon)
 • Select Payment Method
 • Code Will Be Sent Via File On Mega.nz
